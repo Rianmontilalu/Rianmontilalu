@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Hii There 🙌<br>I develops and implements scalable digital solutions using information technology, innovation, and collaborative strategies to drive organizational growth and support future management leadership values.
 
 
